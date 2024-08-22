@@ -1,4 +1,4 @@
-## Hi there, I'm Chayann 👋
+## Hi, I'm Chayann! 👋
 
 
 - 📚 I’m an Information Technology major at University of Central Florida
